@@ -1,5 +1,14 @@
-## Hi there 👋
+▄▀▄▀▄▀▄▀▄▀▄ )O: Kaleb or Kasper :O( ▄▀▄▀▄▀▄▀▄▀▄
 
+(˶°ㅁ°)!! He ﾉ They
+
+Ponytown : DNCoveruf, C+H+K freely, offtab like almost all the time so w2i, Ships iwcuf, I block freely.
+
+|
+
+I am relatively sensitive and my comprehension when in a serious talk is very low. I sometimes leetspeak , ex. 'H1 1'm k4l3B! 1 g0 bY h3 / 7h3Y!'
+
+𝄞𝄢 Synpath ,, Doubles still interact! ,, Yumeshipper ﾉ Very sharing!
 <!--
 **Letsdosomemagicstuff/Letsdosomemagicstuff** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

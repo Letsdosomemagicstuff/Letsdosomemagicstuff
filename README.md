@@ -3,6 +3,7 @@
 (˶°ㅁ°)!! He ﾉ They
 
 I block freely
+
 DNI ; Charactercest, pros, darks, anything taboo. (I do not care if its just fiction these types of relationships make me EXTREMELY uncomfortable.) Ships interact with care please!
 
 |

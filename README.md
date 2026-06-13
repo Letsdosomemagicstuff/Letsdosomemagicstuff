@@ -2,7 +2,8 @@
 
 (˶°ㅁ°)!! He ﾉ They
 
-Ponytown : DNCoveruf, C+H+K freely, offtab like almost all the time so w2i, Ships iwcuf, I block freely.
+I block freely
+DNI ; Charactercest, pros, darks, anything taboo. (I do not care if its just fiction these types of relationships make me EXTREMELY uncomfortable.) Ships interact with care please!
 
 |
 

@@ -18,8 +18,6 @@ N1 CATERSKATE ﾉ SKATERPILLAR ENTHUSIAST!
 
 Yumes ;
 
-Doctor - The freak circus
-
 Maisie - Laceys flash games
 
 Drel - Terror realm

@@ -4,6 +4,8 @@
 
 I block freely
 
+Fandom DNI ; Hazbin hotel, Helluva boss, Dandys world [Unless I do or close friend], TCOAAL, Changed, Forsaken [Unless I do or close friend], Grace [Unless I do or close friend], 
+
 DNI ; Qwel supporters, Charactercest, pros, darks, anything taboo. (I do not care if its just fiction these types of relationships make me EXTREMELY uncomfortable.) Ships interact with care please!
 
 |

@@ -18,7 +18,7 @@ Qᴡᴇʟ ꜱᴜᴘᴘᴏʀᴛᴇʀꜱ , ɢʀᴀᴄᴇ ꜱᴜᴘᴘᴏʀᴛᴇʀ
 
 ᴘʟᴇᴀꜱᴇ ᴄʜᴇᴄᴋ ᴍʏ ᴋᴀʟᴇʙᴏʀᴋᴀꜱᴘᴇʀ ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ ꜰᴏʀ ᴍʏ ꜰɪᴄᴛɪᴏɴᴋɪɴꜱ! ᴀʟᴡᴀʏꜱ ᴄʜᴇᴄᴋ ᴍʏ ꜱᴛᴀᴛᴜꜱ ɪꜰ ᴋɪɴꜱʜɪꜰᴛ ɴᴏᴛ ꜱᴀɪᴅ ɪɴ ᴡʜᴇʀᴇᴠᴇʀ ɪ ᴀᴍ!
 
-<img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/ae7631bd-7f27-41c4-9174-c6a3851903c9" />
+<img width="999" height="100" alt="image" src="https://github.com/user-attachments/assets/ae7631bd-7f27-41c4-9174-c6a3851903c9" />
 
 
 <img width="999" height="190" alt="image" src="https://github.com/user-attachments/assets/9d050d4b-47d0-4777-8a5d-02c3e6bdea2d" />

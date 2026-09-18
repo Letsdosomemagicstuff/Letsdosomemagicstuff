@@ -10,7 +10,7 @@
 🇲​​🇺​​🇱​​🇹​​🇮​-​🇫​​🇦​​🇳​​🇩​​🇴​​🇲​ ⦂
 ​🇩​​🇦​​🇳​​🇩​​🇾​​🇸​ ​🇼​​🇴​​🇷​​🇱​​🇩​ , ​🇫​​🇴​​🇷​​🇸​​🇦​​🇰​​🇪​​🇳​ , !​🇫​​🇺​​🇳​​🇭​​🇴​​🇺​​🇸​​🇪!​ , !​🇷​​🇪​​🇬​​🇷​​🇪​​🇹​​🇦​​🇻​​🇦​​🇹​​🇴​​🇷!​ , ​!🇹​​🇮​​🇲​​🇪​​🇱​​🇪​​🇸​​🇸!​ , ​🇯​​🇯​​🇰​ , !​🇨​​🇸​​🇲!​ , !​🇫​​🇱​​🇦​​🇲​​🇮​​🇳​​🇬​​🇴!​ , !​🇫​​🇺​​🇷​​🇷​​🇾​! , ​🇹​​🇦​​🇩​​🇨​ , ​!🇷​​🇦​​🇲​​🇸​​🇭​​🇦​​🇨​​🇰​​🇱​​🇪! , ​!🇴​​🇧​​🇯​​🇪​​🇨​​🇹​​🇮​​🇫​​🇮​​🇪​​🇩​!
 
-<img width="60" height="65" alt="image" src="https://file.garden/aEpSbDgB2QeyUQAI/pony-town-Freddie%20_%20ME!!!%20C%2BH%20freely!-dance-3-blinking-padded-4x.gif" /><img width="150" height="190" alt="image" src="https://github.com/user-attachments/assets/e90871e3-3b08-4eca-aa39-039e30697a42" /> <img width="450" height="190" alt="image" src="https://github.com/user-attachments/assets/c177780f-ec48-4ee1-96a0-7f24ca25120f" /> 
+<img width="60" height="65" alt="image" src="https://file.garden/aEpSbDgB2QeyUQAI/pony-town-Freddie%20_%20ME!!!%20C%2BH%20freely!-dance-3-blinking-padded-4x.gif" /><img width="150" height="190" alt="image" src="https://github.com/user-attachments/assets/e90871e3-3b08-4eca-aa39-039e30697a42" /> <img width="450" height="190" alt="image" src="https://github.com/user-attachments/assets/c177780f-ec48-4ee1-96a0-7f24ca25120f" /><img width="60" height="65" alt="image" src="https://file.garden/aEpSbDgB2QeyUQAI/pony-town-Freddie%20_%20ME!!!%20C%2BH%20freely!-dance-3-blinking-padded-4x%20(1).gif" /> 
  <img width="150" height="190" alt="image" src="https://github.com/user-attachments/assets/14012c7b-25da-4dcb-84f7-00cc25454917" />
 
 

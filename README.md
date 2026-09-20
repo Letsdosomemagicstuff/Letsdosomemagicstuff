@@ -22,6 +22,8 @@ Qᴡᴇʟ ꜱᴜᴘᴘᴏʀᴛᴇʀꜱ , ɢʀᴀᴄᴇ ꜱᴜᴘᴘᴏʀᴛᴇʀ
 
 ᴘʟᴇᴀꜱᴇ ᴄʜᴇᴄᴋ ᴍʏ ᴋᴀʟᴇʙᴏʀᴋᴀꜱᴘᴇʀ ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ ꜰᴏʀ ᴍʏ ꜰɪᴄᴛɪᴏɴᴋɪɴꜱ! ᴀʟᴡᴀʏꜱ ᴄʜᴇᴄᴋ ᴍʏ ꜱᴛᴀᴛᴜꜱ ɪꜰ ᴋɪɴꜱʜɪꜰᴛ ɴᴏᴛ ꜱᴀɪᴅ ɪɴ ᴡʜᴇʀᴇᴠᴇʀ ɪ ᴀᴍ!
 <img width="999" height="190" alt="image" src="https://github.com/user-attachments/assets/99ed6ff5-d32b-48fc-a17a-29b57d8f1178" />
+<img width="999" height="190" alt="image" src="https://github.com/user-attachments/assets/37c9fb08-5a6a-4605-9f45-94187de6d7c1" />
+
 
 
 

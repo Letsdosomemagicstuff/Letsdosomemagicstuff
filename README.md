@@ -1,4 +1,4 @@
-<img width="999" height="290" alt="image" src="https://files.catbox.moe/j92rr3.jpg" />
+<img width="999" height="999" alt="image" src="https://files.catbox.moe/j92rr3.jpg" />
 
 <img width="333" height="33" alt="image" src="https://github.com/user-attachments/assets/37c9fb08-5a6a-4605-9f45-94187de6d7c1" />
 

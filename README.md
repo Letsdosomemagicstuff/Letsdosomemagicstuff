@@ -16,6 +16,8 @@
 
 <p align="center">𝒞𝒽𝑒𝒸𝓀 𝓇𝑒𝓃𝓉𝓇𝓎 𝒻𝑜𝓇 𝓉𝒽𝑒 𝓇𝑒𝓈𝓉 𝑜𝒻 𝓂𝓎 𝒟𝒩𝐼. ( 𝒾𝒻 𝓎𝑜𝓊𝓇 𝒶𝓃 𝒶𝒹𝓊𝓁𝓉 𝒷𝓊𝓉 𝓎𝑜𝓊 𝓌𝑒𝓇𝑒 𝓂𝓎 𝒻𝓇𝒾𝑒𝓃𝒹 𝒷𝑒𝒻𝑜𝓇𝑒 𝒾𝓉𝓈 𝒻𝒾𝓃𝑒 )</p>
 
+<img width="99" height="56" alt="img" src="https://files.catbox.moe/dga9p1.png">
+
 
 
 

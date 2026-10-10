@@ -22,7 +22,7 @@
 ᴅᴏɴ'ᴛ ʜᴀʀᴀꜱꜱ ᴍᴇ ʙᴇᴄᴀᴜꜱᴇ ʏᴏᴜ ᴅᴏɴᴛ ʟɪᴋᴇ ᴛʜᴇꜱᴇ ꜱʜɪᴘꜱ!
 
 ᴘʟᴇᴀꜱᴇ ᴄʜᴇᴄᴋ ᴍʏ ᴋᴀʟᴇʙᴏʀᴋᴀꜱᴘᴇʀ ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ ꜰᴏʀ ᴍʏ ꜰɪᴄᴛɪᴏɴᴋɪɴꜱ! ᴀʟᴡᴀʏꜱ ᴄʜᴇᴄᴋ ᴍʏ ꜱᴛᴀᴛᴜꜱ ɪꜰ ᴋɪɴꜱʜɪꜰᴛ ɴᴏᴛ ꜱᴀɪᴅ ɪɴ ᴡʜᴇʀᴇᴠᴇʀ ɪ ᴀᴍ!
-<img width="999" height="190" alt="image" src="https://github.com/user-attachments/assets/99ed6ff5-d32b-48fc-a17a-29b57d8f1178" />
+<img width="999" height="190" alt="image" src="https://files.catbox.moe/wchzkv.jpg" />
 
 
 

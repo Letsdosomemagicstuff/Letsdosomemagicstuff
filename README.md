@@ -1,7 +1,7 @@
 <p align="center">
-  <img width="300" height="250" alt="ginger" src="https://files.catbox.moe/j6ih5p.png">
+  <img width="300" height="250" alt="ginger" src="https://files.catbox.moe/9injo4.png">
   <p align="center">
-  <img width="666" height="250" alt="banner" src="https://files.catbox.moe/x7ivgw.png">
+  <img width="666" height="250" alt="banner" src="https://files.catbox.moe/rswcyx.png">
 <p align="center">𝒦𝒶𝓁𝑒𝒷 𝑜𝓇 𝒦𝒶𝓈𝓅𝑒𝓇</p>
 
 
